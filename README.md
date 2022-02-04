@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @YugeshNTR 
-- 👀 I’m interested in farming
+- 👀 Love my self
 
 <!---
 YugeshNTR/YugeshNTR is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
